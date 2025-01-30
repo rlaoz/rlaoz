@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rlaoz
 - 👀 I’m interested in poetry and reading. 
 - 🌱 I’m currently learning cybersecurity
-- 💞️ I’m looking to collaborate on anything you invite me to, im eager to learn and help!
+- 💞️ I’m looking to collaborate on anything you invite me to, I´m eager to learn and help!
 - 😄 Pronouns: she/her
